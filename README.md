@@ -1,1 +1,1 @@
-# I2-Sanskruti-Sawant
+# Sanskruti-Sawant
